@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Abhijeet Chine
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Engineering
+- 📫 How to reach me Twitter- @AbhiChine
+- Pronouns : He/His
+- Fun fact : I spend almost 6 Hours listening songs everyday
