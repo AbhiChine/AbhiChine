@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Engineering
 - 📫 How to reach me Twitter- @AbhiChine
 - Pronouns : He/His
-- Fun fact : I spend almost 6 Hours listening songs everyday
+- Fun fact : I spend almost 6 Hours listening songs everyday.
